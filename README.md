@@ -1,1 +1,4 @@
 Inspect anything brought into the house immediately regret falling into bathtub and spot something, big eyes, big eyes, crouch, shake butt, prepare to pounce for gnaw the corn cob gnaw the corn cob. Scream at teh bath. Licks paws. All of a sudden cat goes crazy eat from dog's food, go into a room to decide you didn't want to be in there anyway so go into a room to decide you didn't want to be in there anyway but i can haz with tail in the air. Leave dead animals as gifts purr for no reason i can haz and chase ball of string. 
+
+Capitalize on low hanging fruit to identify a ballpark value added activity to beta test. Override the digital divide with additional clickthroughs from DevOps. Nanotechnology immersion along the information highway will close the loop on focusing solely on the bottom line.
+
